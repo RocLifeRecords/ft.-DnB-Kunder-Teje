@@ -1,30 +1,113 @@
 # sv-DnB-Startup.-ft.-DenyD---Kunder-Teje
-Ti e do Drejtësinë is a double album by Albanian pop/rap singer DenyD released 2017.
+"Kundër Teje" is the first song from the album 'Ti Do Drejtësinë'.
 
-Recorded during 2016-2017 in Tirana, Ti e do Drejtësinë was aimed to be an pop/rap album. It features are many Ambient music samples.
+In verses, the song reflects the days to implement justice and the care of the judges. The verse goes on to call, to give ourselves to the court, to save us from the hands of the extortionists, but then their neglect brings famine.
 
-Background and promotion
+In the continuation of the verse, I express myself to listen to the voice of the Elder, carefully implementing all the commandments and laws that he is giving, but then even here in this verse, all the penalties can catch you.
 
-I stuck to an original idea to make an pop/rap album, even in my conscious that some tracks don't sound like a proper rap at first listen. The best example is the song "Pop-Rap Garanci", which does not sound like rap when you listen to it the first time. But if you forget all, the bass lines are just really basic rap shape. As a dance music, is not an idea of a good times, but as electronic-pop, so much fool as kinetic.
+I go on and say that you will work hard, but you will collect little.
 
-Twelve songs was released as the Vol I (CD1), before the entire album Vol II (CD2) release. "Ti e do Drejtësinë Vol I" was the first unit of the rapper in 2016 and featured "Ti e do Drejtësinë Vol I & II", was the primary medium album in 2017.
+A city in northern Albania where men always run away has been added to the song.
 
-The double album "Ti e do Drejtësinë Vol I & II" in long-term is to support the justice system in Albania, from various experts, assistant's, translators etc. Specifically, to refer the concept of the religion and politics in justice where some Jews, Muslims and Christians believe that the justice is the present, real, right and a command divine derived from God. The Psalmist describes God as having "Righteousness and justice [as] the foundation of his throne;....." (Psalms 89:14)
+Thus, I also remember a girl from Tirana called Rozeta who distributed drugs, symbolizing her as the fortress of this city, Rozafati.
 
-Track listing
+But again the verse is contradictory to the mountainous places where the young men live.
 
-All tracks written by DenyD.
+Of the five mafia families that have been in the Bronx, America, I add the last mafia family that is in the Balkans, thus symbolizing it with the number six, where all these guys have been living in this peninsula for a...  more
+lyrics
+N' ditët për t' zbatuar drejt’sin’ kujdesen gjykat’sit.
 
-CD1                                                                  Length                            
-1.    Kundër Teje (ft. SV)                                      3:12
-2.    T'Ligjt do Shfarosen (ft. TrancyLoop)                 3:15 
-3.    Ti e do Drejtësinë (ft. CapDan)                         4:14
-4.    Më Mirë Pak (ft. Saber)                                    3:09   
-5.    Ekspertët Zbatojnë (ft. CoverMix)                     3:24
-6.    Pop - Rap Garanci (ft. Skiessi)                          2:55
-7.    T'Gjithë Ata (ft. Impulsologik)                          4:46
-8.    Skeptër (ft. Strict Production)                           3:42
-9.    Qiej të Rinj e Tokë të Re (ft. Shovon)                3:04
-10.  PlantacionI (ft. Alf42Red)                                 4:12
-11.  Vullneti i Fundit (ft. Ogisdi)                              3:12
-12.  Le t'Gëzojmë e t'Ngazëllojmë (ft. SV)                 3:24   
+Prandaj thërrasim t' na jepen gjykat’s,
+që t'shpëtojmë nga duart e zhvat’sve,
+n' vend ra zi buke.
+
+Nëse nuk do t’ dëgjosh zërin e t'Moçmit,
+Perëndis tënd,
+duke zbatuar me kujdes t' gjitha urdhërimet ligjet që po t' jep sot,
+do t' zën’ t'gjitha penalltit’.
+
+Do hedhësh shum far’ n' ar’,
+por do mbledhësh pak.
+
+Nji burr’ iku nga Shkodra.
+
+K’shtu,
+Rozeta vdiq e varrosën n' Rozaf,
+domethën Rozafat.
+
+Tani n' vendet malore ishte një djal’ i ri.
+
+Ai ësht’ nga familja e gjasht’ ka ca koh’ që banon atje.
+
+Nga ti,
+o Vlor’,
+që je më e vogla ndër qytetet e Judës,
+do dali ai që bëri Nëntorin e Dyt’.
+
+Defacto,
+Coup d’ etat,
+derisa t' zhduken fushat.
+
+Tribalda lindi një djal’ ia vuri emrin Gjergj.
+
+Ai ësht’ ati i Kastriot’ve sot e k’saj dite.
+
+Nga kanioni n' luginën n' rrafshinën e Kurbinit,
+n'fundin e Pisgahut,
+zgjatet përpara Lazarati.
+
+Ali Pash’ Tepelena nuk e ngacmoi Çam’rin’ mos hyni n' luft’ për të,
+sepse nuk do t'u jap’ aspak nga toka e tij,
+pasi Ali Demsin e kan’
+çunat e Tironës.
+
+Nga rrafshinat e shkreta,
+Berisha u ngjit n' Alpe,
+n' maj t' botës,
+përball Tropojës.
+
+Zoti i tregoi gjith’ vendin,
+Arb’rin,
+Shqip’rin.
+
+Atë dit’ dora e student’ve mposhti ergësirat e diktaturës pa trazira për tet’dhjet vjet.
+
+Mbahem fort pas drejt’sis sime nuk do ta lë.
+
+At’here Zot,
+Satana nga Vjen?
+
+Kam bredhur nëpër tok’ i kam rën’ lart e posht’.
+
+Zemra nuk do m' qortoj’ për asnj’ nga dit’t e mia.
+
+Prandaj përpiqem vazhdimisht,
+që mund t' them me ndërgjegje t' pastër,
+se nuk kam kryer asnjë faj kundër Perëndis’ e njer’zve.
+
+Vall’,
+ti do hedhësh posht’ drejt’sin time?
+Mos vall’ do m' shpallësh mua fajtor që t' dalësh vet’ i drejt’?
+
+Kundër teje,
+vetëm kundër teje kam mëkatuar.
+
+Kam bër’ atë që ësht’ e keqe n' syt’ e tu,
+që ti t' dalësh i drejt’ kur flet e i kulluar kur gjykon.
+
+Kurr’ mos qoft’!
+
+Përkundrazi,
+le t' dali drejt’sia që buron,
+edhe sikur çdo njeri t' dali gënjeshtar,
+ashtu siç ësht’ e shkruar.
+
+Që ti t' dalësh i drejt’ n' fjal’t e tua e t' fitosh,
+taksambledh’sit.
+credits
+from Ti e Do Drejt​ë​sinë, track released January 20, 2023
+The song project has a nice setup of Drum & Bass.
+The Beat+Bassline Editor has a kick, snare, hi-hat, and ride.
+In the song editor, it is also a bass line.
+license
+all rights reserved
